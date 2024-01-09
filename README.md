@@ -108,7 +108,7 @@
 
 <h2>Have a Problem or Question?</h2>
 
-<p dir="auto"><a href="https://t.me/TWFtYWggYWt1IHRha3V0IPCfpK" rel="nofollow">Telegram</a></p>
-<p dir="auto"><a href="https://t.me/goldsvetcasino1" rel="nofollow">Telegram Group</a></p>
+<p dir="auto"><a href="https://t.me/archxprt" rel="nofollow">Telegram</a></p>
+<p dir="auto"><a href="https://t.me/Archxprt" rel="nofollow">Telegram Group</a></p>
 <p>Discord : @x.111x</p>
 <p dir="auto">&nbsp;</p>
